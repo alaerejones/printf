@@ -4,10 +4,7 @@
 					----------------------
 
 
-					1. Oghenemaga Ebobo
-
-					2. Joshua Alana
-
+					1. Jones-Ere Alaere
 
 					
 					
